@@ -1,2 +1,0 @@
-# ks-publicidadcreativa
-Publicidad Creativa
